@@ -16,7 +16,7 @@
 
 ## 📸 تابعنا
 تابعنا على إنستغرام لمزيد من اللقطات والمباريات المباشرة:  
-👉 [@s10_p10](https://www.instagram.com/s10_p10)
+👉 [@s10_p1](https://www.instagram.com/s10_p1)
 
 ## 🌐 موقعنا الرسمي
 🔗 [https://group7cod.github.io/group7-codmobile/](https://group7cod.github.io/group7-codmobile/)
